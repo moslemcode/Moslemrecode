@@ -1,0 +1,2 @@
+# Moslemrecode
+Fast learner
